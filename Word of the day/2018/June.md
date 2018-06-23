@@ -14,5 +14,5 @@ Word of the day-after-Solstice: "slouch" - an astronomical term for the tilt of 
 
 Word of the day: "sielunmaisema" - literally "soul-landscape", "soul-scene"; a particular place that a person carries deep in the heart & returns to often in memory (Finnish). 
 
-What/where is your "sielunmaisema"?
+What/where is your "sielunmaisema"?  
 （翻译成： 心景？）
