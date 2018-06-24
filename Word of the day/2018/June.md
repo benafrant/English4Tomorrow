@@ -2,9 +2,12 @@
 # Robert Macfarlane
 
 
-## 06.22
+## 06.24
 
-Word of the day-after-Solstice: "slouch" - an astronomical term for the tilt of a planet's axis away from the vertical; Earth's "slouch" is what produces seasons and solstices. Aka "obliquity".
+Word(s) of the day: "uncanny valley" - in aesthetics, the 'dip in affinity' that occurs in an observer's response to a humanoid object as its resemblance to a living human increases (Masahiro Mori). Eeriness & unease inhabit the uncanny valley. 
+
+
+
 
 
 
@@ -16,3 +19,14 @@ Word of the day: "sielunmaisema" - literally "soul-landscape", "soul-scene"; a p
 
 What/where is your "sielunmaisema"?  
 （翻译成： 心景？）
+
+
+
+
+
+## 06.22
+
+Word of the day-after-Solstice: "slouch" - an astronomical term for the tilt of a planet's axis away from the vertical; Earth's "slouch" is what produces seasons and solstices. Aka "obliquity".
+
+
+
