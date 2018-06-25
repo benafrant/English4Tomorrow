@@ -2,6 +2,16 @@
 # Robert Macfarlane
 
 
+## 06.25
+
+Word(s) of the day: “simmer dim” - the endless twilight of days around the summer solstice, when true dark never falls (lit. summer-dusk; Shetland & Orkney)
+In Scandinavia, this/these are known as the “white nights”; are there other terms in other languages?
+
+![](http://7xoc51.com1.z0.glb.clouddn.com/Dgg-j0wWsAU8BRG.jpg)
+
+
+
+
 ## 06.24
 
 Word(s) of the day: "uncanny valley" - in aesthetics, the 'dip in affinity' that occurs in an observer's response to a humanoid object as its resemblance to a living human increases (Masahiro Mori). Eeriness & unease inhabit the uncanny valley. 
