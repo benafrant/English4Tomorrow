@@ -2,6 +2,14 @@
 # Robert Macfarlane
 
 
+## 06.26
+
+Word of the day: “oneiric” - dream-like, wraithish. From the Ancient Greek ὄνειρος, dream. 
+Thus also “oneirodynia”, meaning disturbed sleep, including that in which nightmares & sleepwalking occur & intense dreamscapes are traversed.
+
+![](http://7xoc51.com1.z0.glb.clouddn.com/DgmIMeuVAAAheJS.jpg)
+
+
 ## 06.25
 
 Word(s) of the day: “simmer dim” - the endless twilight of days around the summer solstice, when true dark never falls (lit. summer-dusk; Shetland & Orkney)
