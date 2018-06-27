@@ -2,6 +2,17 @@
 # Robert Macfarlane
 
 
+## 06.27
+
+Word of the day: "muggy" - stiflingly warm, oppressively humid & close. Prob from Old Icelandic "mugga", meaning mist, dampness. 
+In Japanese, 蒸し暑い 'mushi atsui' ('steaming hot'). 
+What other words in other languages are there for muggy/mugginess?
+
+![](http://7xoc51.com1.z0.glb.clouddn.com/DgrRw5HX4AAdpXu.jpg)
+
+
+
+
 ## 06.26
 
 Word of the day: “oneiric” - dream-like, wraithish. From the Ancient Greek ὄνειρος, dream. 
