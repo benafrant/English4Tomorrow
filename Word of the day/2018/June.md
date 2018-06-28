@@ -21,6 +21,8 @@ Word of the day: "muggy" - stiflingly warm, oppressively humid & close. Prob fro
 In Japanese, 蒸し暑い 'mushi atsui' ('steaming hot'). 
 What other words in other languages are there for muggy/mugginess?
 
+"Bedompig" (Afrikaans), "squelstring" & "unketty" (Exmoor), "afoso" (Italian), "drukkend" (Dutch), "drymllyd" (Welsh), "lummert" (Norwegian)...thanks for this thread of hundreds of words, many of them onomatopoeic, from dozens of languages for muggy/mugginess.
+
 ![](http://7xoc51.com1.z0.glb.clouddn.com/DgrRw5HX4AAdpXu.jpg)
 
 
