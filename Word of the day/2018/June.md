@@ -2,6 +2,19 @@
 # Robert Macfarlane
 
 
+
+
+## 06.28
+
+
+Word of the day: “sea-raven” - common name for the cormorant (the word is from the Latin “corvus marīnus”, “sea-crow”); also “water-buzzard”. Cormorants are often seen standing cruciform on rocks or snags, wings held out to dry in the sun.
+
+![](http://7xoc51.com1.z0.glb.clouddn.com/DgwbX1JUEAALI_T.jpg)
+
+
+
+
+
 ## 06.27
 
 Word of the day: "muggy" - stiflingly warm, oppressively humid & close. Prob from Old Icelandic "mugga", meaning mist, dampness. 
