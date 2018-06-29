@@ -9,6 +9,8 @@
 Word of the day: "thalassophile" - a lover of the sea; someone who is powerfully drawn to & by the ocean. 
 From the Ancient Greek θάλασσα (thálassa, “sea”), and φίλος (phílos, “dear, beloved”).
 
+痴海者，恋海人？
+
 ![](http://7xoc51.com1.z0.glb.clouddn.com/180629Dg1k9A8X0AALP9p.jpg)
 
 
