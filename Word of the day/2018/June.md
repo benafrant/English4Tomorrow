@@ -7,9 +7,9 @@
 
 
 Word(s) of the day: "dog days" - the sultry days of summer that follow the rising of the Dog Star, Sirius (Canis Majoris), characterised often by thunderstorm, drought, closeness & lethargy. 
-In Latin, dies caniculares ("puppy days"), in Greek κυνάδες ἡμέραι, "dog days". https://t.co/LgILgNQhaw
+In Latin, dies caniculares ("puppy days"), in Greek κυνάδες ἡμέραι, "dog days". 
 
-
+![](http://7xoc51.com1.z0.glb.clouddn.com/Dg6uhLgXkAEAcYS.jpg)
 
 
 
