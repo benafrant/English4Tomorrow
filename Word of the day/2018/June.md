@@ -2,6 +2,17 @@
 # Robert Macfarlane
 
 
+## 06.30
+
+
+
+Word(s) of the day: "dog days" - the sultry days of summer that follow the rising of the Dog Star, Sirius (Canis Majoris), characterised often by thunderstorm, drought, closeness & lethargy. 
+In Latin, dies caniculares ("puppy days"), in Greek κυνάδες ἡμέραι, "dog days". https://t.co/LgILgNQhaw
+
+
+
+
+
 
 
 ## 06.29
